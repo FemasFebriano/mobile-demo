@@ -19,7 +19,7 @@ Kelas 2E
 12. 361955401135 – Alifia helda Cahyani
 14. 361955401137 - Bharamiyati Athalas Bharka
 15.
-16.
+16. 361955401138 - Femas Febriano
 17.
 18.
 19.
